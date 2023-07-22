@@ -11,6 +11,6 @@ Yes, the party is still in honor of your bachelor's life ending. As you can see 
 
 
 
-## For Bristy Apu the only person who really has the power to decide if Soumen Da can join,
+## For Bristy apu the only person who really has the power to decide if Soumen da can join,
 
 I don't know why he is wasting his time convincing everyone in the group when convincing you should be the main goal. Also, you enjoying the party is the main objective so that you don't have to worry about what Mum Mum is doing. However, with all the executive power at hand, you have been so cool and calm which is very admirable.
