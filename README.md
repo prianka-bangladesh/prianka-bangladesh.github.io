@@ -1,4 +1,5 @@
 # Jayita di's Bachelorette Party Should be a Total Surprise!
+![336661245_1328608901036215_1940496015034378262_n](https://github.com/prianka-bangladesh/prianka-bangladesh.github.io/assets/75034610/8c5b053b-1a06-473d-9300-a82c83567bde)
 
 ## For Soumen da whose leagal career is dominated by the internet,
 
