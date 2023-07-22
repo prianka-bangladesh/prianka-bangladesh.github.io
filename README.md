@@ -2,7 +2,7 @@
 
 ## For Soumen da who would believe anything on the internet,
 
-It doesn't matter if it is a secret or not, guys are not so interested in a bachelorette party! I'm sure more Google searches will be there to convince you! And it is not a secret anymore, you generously made sure of that. Although it is entertaining messing with you when I can write anything on a webpage and this is what you call "Reference", I have an unlimited supply of that for you. Besides, with all the people in Vermont, your choice of company to bring to the party was very questionable.
+It doesn't matter if it is a secret or not, guys are not so interested in a bachelorette party! I'm sure more Google searches will be there to convince you! And it is not a secret anymore, you generously made sure of that. Besides, with all the people in Vermont, your choice of company to bring to the party was very questionable.
 
 
 ## For Jayita di who is the one getting married,
