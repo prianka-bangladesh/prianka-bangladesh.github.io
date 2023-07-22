@@ -1,8 +1,8 @@
-# Jayita di's Bachelorette Party Should be a Secret!
+# Jayita di's Bachelorette Party Should be a Total Surprise!
 
-## For Soumen da who would believe anything on the internet,
+## For Soumen da whose leagal career is dominated by the internet,
 
-It doesn't matter if it is a secret or not, guys are not so interested in a bachelorette party! I'm sure more Google searches will be there to convince you! And it is not a secret anymore, you generously made sure of that. Besides, with all the people in Vermont, your choice of company to bring to the party was very questionable.
+It doesn't matter if it is a surprise or not, guys are not invited to a bachelorette party! Of course, you are misleading us with the wrong question to get closer to your agenda. And it is not a secret anymore, you generously made sure of that. Besides, with all the people in Vermont, your choice of company to bring to the party was very questionable.
 
 
 ## For Jayita di who is the one getting married,
